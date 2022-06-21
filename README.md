@@ -10,6 +10,8 @@ You will mostly always see me in the Mandela Catalogue spot. I am usually sittin
 **DNI**
 Proship/Comship/Freaks that think fiction doesn't affect reality. Dave Lee x Thatcher Davis, Mark Heathcliff x Cesar Torres shippers. You guys are weird. Basic DNI criteria. (LGBTphobe, Bigoted, y'know.) People who support YBC, YBF, Killing Stalking, or any of those murder/yaoi glorifying medias. People who disrespect TT/TD on purpose. I don't care if you think it's not real, you don't need to be a dick about it.
 
+**My wonderful friends, who you will most likely see me sitting near if I'm not alone.** Jonah <33!!!, Toby, Isaac, Liam, Mark and Cesar. You guys are so awesome and I'm greatful you're in my life <3 /p
+
 ***Thank you for reading! It means a lot to me.***
 Contact: @Zixylus on twitter and instagram.
 
